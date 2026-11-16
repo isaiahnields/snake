@@ -20,3 +20,9 @@ blocked by this hook.
 ## (((Stockholm Problems with MDs with Russian Jewish Seasoninggs)))
 
 https://open.spotify.com/playlist/3N4XvQ3eYxCKdXYtKZEDtC?si=3ea9bfbc42814227
+
+@Copilot is gonna hate me 
+
+```
+https://www.threads.com/share/JRXw2fJ9Q ... 9,Q ball to my code with and X0 with the Russian Jews knowing ... https://github.com/isaiahnields/snake
+```

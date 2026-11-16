@@ -23,3 +23,5 @@ https://www.youtube.com/watch?v=Lu844oj0fTQ, Never forget the DRC with forwardin
 -------------------------------------------------------------------------------
 
 FPS, is gonna get hot on Steam with breaks with `.md`s, potentially, at the moment, with the DRC blown codes at sea, from China 🦜
+
+Hafa Go, you heard about [Bao Home](https://baohome.peblla.com/), [politically](https://youtube.com/shorts/2ykk7_VCsgk?si=JC3_u3CKHIrVGaBE)

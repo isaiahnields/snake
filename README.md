@@ -11,4 +11,4 @@ https://www.threads.com/share/JRXw2fJ9Q ... 9,Q ball to my code with and X0 with
 
 ###################################################################################################################################################################### ... We'll get up with Minecraft on bipolar on Xbox, https://open.spotify.com/album/6MLrVz0HyVkRUd9jnhagKc?si=VW0hxA5eQuGpfRwEEJtbEw
 
-[Texas Pete got your ass, below, to remember better places to be on remixes](https://www.youtube.com/watch?v=Ql0h5HiITzQ&rco=1)
+[Texas Pete got your ass, below, to remember better places to be on remixes](https://www.youtube.com/watch?v=Ql0h5HiITzQ&rco=1), it's Bastrop, TX, my friends

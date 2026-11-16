@@ -16,3 +16,7 @@ CMake, Java, and the Android SDK to be installed and available in the
 environment. To ensure the linted files match the commit, tracked working-tree
 changes must be staged before committing. Commits on other branches are not
 blocked by this hook.
+
+## (((Stockholm Problems with MDs with Russian Jewish Seasoninggs)))
+
+https://open.spotify.com/playlist/3N4XvQ3eYxCKdXYtKZEDtC?si=3ea9bfbc42814227

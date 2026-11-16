@@ -1,5 +1,5 @@
 
-## Stockholm Problems with MDs with Russian Jewish Seasoninggs
+## Stockholm Song Problems with MDs with Russian Jews
 https://open.spotify.com/playlist/3N4XvQ3eYxCKdXYtKZEDtC?si=3ea9bfbc42814227
 
 @Copilot is gonna hate my politics with MDs

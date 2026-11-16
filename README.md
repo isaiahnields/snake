@@ -9,4 +9,6 @@ https://open.spotify.com/playlist/3N4XvQ3eYxCKdXYtKZEDtC?si=3ea9bfbc42814227
 https://www.threads.com/share/JRXw2fJ9Q ... 9,Q ball to my code with and X0 with the Russian Jews knowing ... https://github.com/isaiahnields/snake with 𝕏
 ```
 
-###################################################################################################################################################################### ... We'll get up with Minecraft on bipolar, https://open.spotify.com/album/6MLrVz0HyVkRUd9jnhagKc?si=VW0hxA5eQuGpfRwEEJtbEw
+###################################################################################################################################################################### ... We'll get up with Minecraft on bipolar on Xbox, https://open.spotify.com/album/6MLrVz0HyVkRUd9jnhagKc?si=VW0hxA5eQuGpfRwEEJtbEw
+
+[Texas Pete got your ass, below, to remember better places to be on remixes](https://www.youtube.com/watch?v=Ql0h5HiITzQ&rco=1)

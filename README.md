@@ -1,7 +1,5 @@
 # DRC 🦜🧭☠️
 
-## Stockholm Song Problems with `.md`s with Russian Jews with MW2 Songs, below with Microsoft with links, potentially, on the backend
-
 -------------------------------------------------------------------------------
 
 https://open.spotify.com/playlist/3N4XvQ3eYxCKdXYtKZEDtC?si=3ea9bfbc42814227

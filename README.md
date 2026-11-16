@@ -22,4 +22,4 @@ https://www.youtube.com/watch?v=Lu844oj0fTQ, Never forget the DRC with forwardin
 
 -------------------------------------------------------------------------------
 
-FPS, is gonna get hot on Steam with breaks with `.md`s, potentially, at the moment, with the DRC blown codes 🦜
+FPS, is gonna get hot on Steam with breaks with `.md`s, potentially, at the moment, with the DRC blown codes at sea from China 🦜
